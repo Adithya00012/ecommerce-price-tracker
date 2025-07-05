@@ -87,5 +87,5 @@ Perfect to showcase on your Upwork/Freelancer portfolio to attract clients in e-
 
 ## 📬 Contact
 For project inquiries or freelance collaboration:
-**Your Name**  
-[LinkedIn](https://linkedin.com/in/yourprofile) | [GitHub](https://github.com/yourusername) | your_email@gmail.com
+**K Adithya**  
+[LinkedIn](https://linkedin.com/in/yourprofile) | [GitHub](https://github.com/yourusername) | k.adithyaadithya1432@gmail.com
